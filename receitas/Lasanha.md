@@ -1,3 +1,5 @@
+## Lasanha
+
 ### Ingredientes:
 
 - 500 g de carne moída
@@ -25,22 +27,22 @@
 ### Modo de preparo
 
 
-Aqueça o azeite e refogue a cebola e o alho.
+1. Aqueça o azeite e refogue a cebola e o alho.
 
-Acrescente a carne moída, 1 xícara de água e deixe até cozinhar.
+2. Acrescente a carne moída, 1 xícara de água e deixe até cozinhar.
 
-Coloque o extrato de tomate,orégano e aproximadamente 1 e 1/2 litros de água.
+3. Coloque o extrato de tomate,orégano e aproximadamente 1 e 1/2 litros de água.
 
-Deixe uns 10 minutos e desligue, acrescente salsinha e cebolinha.
+4. Deixe uns 10 minutos e desligue, acrescente salsinha e cebolinha.
 
-O molho deve ficar bem líquido.
+5. O molho deve ficar bem líquido.
 
-Forre o fundo de um refratário com um pouco do molho.
+6. Forre o fundo de um refratário com um pouco do molho.
 
-Alterne camadas de massa de lasanha, molho, fatias de presunto, fatias de mussarela.
+7. Alterne camadas de massa de lasanha, molho, fatias de presunto, fatias de mussarela.
 
-A última camada deverá ser de mussarela.
+8. A última camada deverá ser de mussarela.
 
-Polvilhe queijo ralado.
+9. Polvilhe queijo ralado.
 
-Leve ao forno e deixe até derreter a mussarela.
+10. Leve ao forno e deixe até derreter a mussarela.
